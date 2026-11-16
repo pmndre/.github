@@ -6,7 +6,8 @@ of the original concepts of the Hermetic cultus. The Divine Pymander consists of
 gathered together and put forth as one work.
 
 The second book of The Divine Pymander, called *Poimandre, or The Vision*, is believed to describe the
-method by which the divine wisdom was first revealed. It was after Hermes had received this revelation that he
-began his ministry, teaching to all who would listen the secrets of the invisible as they had been unfolded to him.
+method by which the divine wisdom was first revealed. It was after Hermes Mercurius Trismegistus had received this
+revelation that he began his ministry, teaching to all who would listen the secrets of the invisible as they had
+been unfolded to him.
 
 Manly Palmer Hall - The secret teachings of all ages
