@@ -1,4 +1,4 @@
-### Poimandre, or The Vision
+### [https://pmnd.re](https://pmnd.re), or the vision
 
 The Divine Pymander is one of the earliest of the Hermetic writings now extant. While probably not in its
 original form, having been remodeled and incorrectly translated since, this work undoubtedly contains many
@@ -11,5 +11,3 @@ revelation that he began his ministry, teaching to all who would listen the secr
 been unfolded to him.
 
 Manly Palmer Hall - The secret teachings of all ages
-
-https://pmnd.re
